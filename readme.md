@@ -1,1 +1,1 @@
-![Blog](https://imgur.com/i1Jf0xr.gif)
+![Blog](blog-anden-27.gif)
